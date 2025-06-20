@@ -38,6 +38,7 @@
 ### 📫 Contato
 
 - GitHub: [@StudioHash404](https://github.com/StudioHash404)
+- Email: [email de contanto] (studiohash404@proton.me)
 
 ---
 
